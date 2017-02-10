@@ -8,3 +8,5 @@ After several YESes, I would start to get a mental image of the invention (alloy
 One day, my Creative Self told me that he was Nicola Tesla when he was here in his last lifetime.
 
 When you visit my website, you will be astonished at how many new technologies there are waiting to come into the world. I have had to wait until we were firmly in the new, Aquarian Energy which is Female, find-your-own-way, freedom-driven, truth-driven, choosing-driven and is individual based; not collective based.
+
+This is, as opposed to, male dominated, hierarchical, credential based, follow the herd.flock or school and, of course, oriented towards fear, force, control and resistance to doing-the-right-thing.
